@@ -9,3 +9,5 @@
 ### 베트남
 * [세계테마기행] 천 개의 얼굴, 베트남 1~4부 (https://www.youtube.com/watch?v=GADWWrm8VdY)
 
+### 중앙아시아, 동유럽
+* [EBS 세계테마기행] 파미르를 걷다 타지키스탄 1 ~ 4부 ( https://www.youtube.com/watch?v=-J0dkV2RW4Q)
