@@ -7,3 +7,6 @@
     - MSM, 종합비타민(생약포함), 
 * [더오래]서양서 간 해독제로 널리 알려진 밀크씨슬 이름은
   - https://news.joins.com/article/23921030?cloc=joongang-home-newslistleft
+
+* 비타민B군 섭취 중단해야 하는 위험 신호
+  - https://www.youtube.com/watch?v=wQU48M0kgS8
