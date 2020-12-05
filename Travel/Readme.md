@@ -1,5 +1,8 @@
 # Travel
 
+## [아무튼, 주말] 아찔한 42도·360도 전망…방방곡곡 모노레일
+* https://www.chosun.com/national/weekend/2020/12/05/SCICG4CKTVHONLJT23HRQOGR6I/
+
 ## 은하수 보기
 * 몽골갈필요없다? 우리나라 은하수를 찾아서(https://www.youtube.com/watch?v=l-eDf8lRN3M)
 
