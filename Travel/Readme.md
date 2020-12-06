@@ -9,7 +9,10 @@
 ## 울릉도, Ulleung Island, Korea
 * 여기 한국 맞냐?? 울릉도 일주도로 완전개통기념 50Km 풀완주
   - https://www.youtube.com/watch?v=Cpb317NbSgA
+* [언박싱 그섬-울릉도] "그곳에 가면 특별함 느껴져" 요즘 신혼부부가 주목하는 섬
+  - https://news.joins.com/article/23937060?cloc=joongang-home-photovideolist
 
+[출처: 중앙일보] [언박싱 그섬-울릉도] "그곳에 가면 특별함 느껴져" 요즘 신혼부부가 주목하는 섬 
 ## 해외
 
 ### 베트남
