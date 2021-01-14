@@ -1,5 +1,9 @@
 # Travel
 
+## 그 섬에 가면 “속옷 빼곤 싹 다 보라색”
+https://news.joins.com/article/23970897?cloc=joongang-home-ranking
+[출처: 중앙일보] 그 섬에 가면 “속옷 빼곤 싹 다 보라색”
+
 ## [아무튼, 주말] 아찔한 42도·360도 전망…방방곡곡 모노레일
 * https://www.chosun.com/national/weekend/2020/12/05/SCICG4CKTVHONLJT23HRQOGR6I/
 
