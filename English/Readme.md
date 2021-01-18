@@ -2,6 +2,17 @@
 
 ## Youtube
 
+### 이 표현들 꼭 가져가요. Get만 잘써도 영어가 정말 쉽다니까요!
+* https://www.youtube.com/watch?v=btKJpC4_kOc
+
+1) Let's get started 
+2) I gotta get going 
+3) I don't get it
+4) Can I get you some water?
+5) I got paid yesterday 
+6) I am getting ready for my class
+
+
 ### Could have pp 너무 쉬워서 억울할지도 몰라요. 딱 한 단어만 기억하세요!
 * https://www.youtube.com/watch?v=CGgKOkYqwtE
 
