@@ -2,6 +2,16 @@
 
 ## Youtube
 
+### 다음 단어를 ㅌ으로 발음한다면 T 발음을 아직 모르는 겁니다. T 발음의 2가지 비밀 알려드릴게요.
+* https://www.youtube.com/watch?v=-QGgK321i6c
+
+### 이렇게 Would를 알려주는 강의가 많길 바랍니다. 우리도 Would 쓸 수 있습니다.
+* https://www.youtube.com/watch?v=JsZDKex2VWM
+
+4.Why would I do that? 지난편에서 똥누다 쏙 들어간 느낌~ 오늘 풀렸구요 ㅋㅋ 😁😁😁
+5.If you'd ike 품위가 up!up!
+6.I wouldn't. 나라면~
+
 ### 여러분도 하고 있을 영어 실수! 영어 못한다고 생각하시는 분은 6번 실수를 꼭 보세요.
 ```
 1.PH는 F발음이 난다 
@@ -15,6 +25,22 @@ are you seeing someone? 으로 물어보기
 말 끝마다 붙이는 버릇을 가지자
 6.한글은 위대하다 미국에서 영어를 잘 못한다고 미안해라고 할 필요 없다
 ```
+
+### 이 영상을 보면 Get을 못 쓸 이유가 없습니다.
+* https://www.youtube.com/watch?v=vPxPzRVo004
+* Get은 세상의 모든 변화이다.
+* P Possess
+  - I've got a cat. 지금도 가지고 있음.... 고양이 키워요...
+* A Arrive
+  - Did you get home? I just got home. I'll get there soon.
+  - Do you know how to get there?
+* B Become
+  - I'm getting better.
+* O Obtain
+  - 생긴거에 집중, I got a cat. I got a cold. I got a hangover.
+
+
+
 ### 이 표현들 꼭 가져가요. Get만 잘써도 영어가 정말 쉽다니까요!
 * https://www.youtube.com/watch?v=btKJpC4_kOc
 
