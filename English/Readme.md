@@ -2,6 +2,19 @@
 
 ## Youtube
 
+### 여러분도 하고 있을 영어 실수! 영어 못한다고 생각하시는 분은 6번 실수를 꼭 보세요.
+```
+1.PH는 F발음이 난다 
+2.expact는 예측의 개념이 강하다
+기대하다의 표현은 Look foward to
+3.애인이 있냐고 물어보는것 보단
+are you dating someone? 혹은
+are you seeing someone? 으로 물어보기
+4.나이는 초면에 중요하지 않다.
+5. Please는 존댓말의 개념이 강하다
+말 끝마다 붙이는 버릇을 가지자
+6.한글은 위대하다 미국에서 영어를 잘 못한다고 미안해라고 할 필요 없다
+```
 ### 이 표현들 꼭 가져가요. Get만 잘써도 영어가 정말 쉽다니까요!
 * https://www.youtube.com/watch?v=btKJpC4_kOc
 
