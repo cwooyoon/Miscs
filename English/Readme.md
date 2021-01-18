@@ -1,6 +1,11 @@
 # English
 
 ## Youtube
+
+### Could have pp 너무 쉬워서 억울할지도 몰라요. 딱 한 단어만 기억하세요!
+* https://www.youtube.com/watch?v=CGgKOkYqwtE
+
+
 ### 캐나다에서 먹고 살게 해준 30가지 원어민이 많이 쓰는 영어 표현.
 * https://www.youtube.com/watch?v=--lXXl9Rz8w
 ```
