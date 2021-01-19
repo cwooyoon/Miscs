@@ -45,4 +45,33 @@
     - My effort all paid off.
     - I know it's not easy to learn a new language. But your effort to learn a new language will pay off! So. keep up the good work!
     
+5. Go off
+  - Why are you late?
+    - The alarm didn't go off this morning. So, I'm late. I'm sorry.
+      - 알람이 울리다.
+      - I just set an alarm. It goes off 8 in the morning.
+
+6. Put off
+  - Can I put off our meeting?
+  - I need to study English. But I just keep putting it off.
+  - 오늘 할 일 미루지 마라
+    - Don't put off the things that you have to do today.
     
+7. Call off
+  - The meeting was called off.
+  - Why don'y we call it off?
+  
+8. Rip off
+  - I got ripped off. 사기당했어.
+  - It's a rip off. 표절이야...
+  - 죽이다.
+    - Rip your head off.
+
+9. Blow off
+  - 열을 식히다.
+    - I'm really pissed off. I need to blow off some steam.
+  - Don't blow me off.
+    
+10. Knock off
+  - Knock it off 그만좀해, 거짓말 치지마...
+  
