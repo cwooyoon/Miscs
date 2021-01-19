@@ -1,5 +1,26 @@
 #
 
+##
+
+## Be supposed to를 못 썼던 이유! 이 비밀을 알면 쓸 수 있습니다.
+* https://www.youtube.com/watch?v=ptMJ_gCh4xg
+
+### (x) ~하기로 되어 있다..
+
+### 많이 쓸수 있는 상황 -> 지각하는 친구가 많을 때...
+* 어디야? 왜 안와?
+  - You're supposed to be here!
+  - 뒤에 but, why가 숨겨져 있음....이유를 물어볼 때...
+  - You're supposed to be here but why you're not here?
+  - You were supposed to stay be home.
+  - you were supposed to keep the secret.
+* 현재형인 경우 의무
+  - You are supposed to be here on time. 시간 맞춰서 와야 합니다.
+  
+
+
+##
+
 ## Look like가 처럼 보이다? 항상 헷갈리는 이 표현 제대로 써먹기!
 * https://www.youtube.com/watch?v=-kuLg75yI_E
 
