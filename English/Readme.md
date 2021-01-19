@@ -2,6 +2,12 @@
 
 ## Youtube
 
+### 나를 자존감 킹으로 만들어준 두 가지 영어표현.
+* https://www.youtube.com/watch?v=ZKSo3YchG10
+* I'm supposed to be here.
+  - 나 여기 있어도 돼...
+* You deserve it.
+
 ### 다음 단어를 ㅌ으로 발음한다면 T 발음을 아직 모르는 겁니다. T 발음의 2가지 비밀 알려드릴게요.
 * https://www.youtube.com/watch?v=-QGgK321i6c
 
