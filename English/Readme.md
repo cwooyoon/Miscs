@@ -2,6 +2,8 @@
 
 ## Youtube
 
+
+
 ### 나를 자존감 킹으로 만들어준 두 가지 영어표현.
 * https://www.youtube.com/watch?v=ZKSo3YchG10
 * I'm supposed to be here.
