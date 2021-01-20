@@ -1,5 +1,9 @@
 #
 
+## #2-1) 학교에서 구동사를 잘못 배운 이유 (ft. 영어의 역사-beef 와 cow 다르게 쓰는 이유 ) #구동사 #영어식 사고 #영어회화 #영어문법 #영어역사
+* https://www.youtube.com/watch?v=ciPhrpC6b3g
+
+
 ##
 
 ## Be supposed to를 못 썼던 이유! 이 비밀을 알면 쓸 수 있습니다.
