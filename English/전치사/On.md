@@ -1,4 +1,6 @@
 # 전치사 On
+* 원어민이 On을 많이 쓰는 건 다 이유가 있다! 이제 On만 보면 반가울 거예요.
+* https://www.youtube.com/watch?v=vdPnjXyWurk
 
 ## On의 에너지
 
@@ -20,6 +22,8 @@
   - 내 앞에 가져와
   - 덤벼
   
+## On 관용구
+
 1. Be on
     - I'm on your side. 난 네 편이야.
       - What if it goes wrong? I'm so worried.
