@@ -46,6 +46,44 @@
       - Hey! Go on!
       - Go on! You're doing well
       
+3. Move on
+    - I'll move on, I'm moving on. 이별을 받아들이겠어.. 내 삶을 살겠어...
+    - Just move on.  넘어가...
+    - Can I move on to the next expression?  Yes, you can move on.
+    
+4. Put on
+    - Put on weight
+      - I think I've put on weight.
+    - 입는 동작에 주목
+    
+5. Crush on
+    - Who is your crush? 짝사랑
+    - I have crush on you.
+    
+6. Get on
+    - get on a bus
+    - ~와 잘 지내다.
+      - I'm getting on him.
+      - We get on well. 우리 잘지내요...
+      - Are you getting on with your boss?
+    - 잘 지내자
+      - How are you getting on?
+      
+7. Count on
+    - 믿다 의지하다.
+      - I'm counting on you to make it.
+      - I'm counting on all of you.
+      
+8. Cheat on
+    - He is cheating on her.
+    
+9. Hold on / Hang on
+    - Hold on please.
+    
+10. Work on
+    - 열중하다. 노력하다.
+    - 뭘 그렇게 열심히 해?
+      - What are you working on?
       
     
   
