@@ -1,0 +1,19 @@
+## 현재완료 (Have pp) 이 영상 보면 이해하게 됩니다!
+* https://www.youtube.com/watch?v=XY0Qd-Gqa2o
+
+### 못쓰는 이유: ~해 왔다로 왜우기 때문
+
+## Have + pp
+* 현재완료는 현재시제, 때로는 과거...
+  - 과거와 현재를 연결해줌...
+  
+* 과거시제는 과거로 끝남...
+  - I've had lunch. 나 점심 먹었어...
+  - I had lunch. 큰 차이가 안남...
+  
+* Yesterday가 들어가면...
+  - Yesterday, I had lunch. (O)
+  - Yesterday, I've had lunch. (X)
+  
+* I've just had lunch.
+
