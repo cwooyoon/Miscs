@@ -1,3 +1,6 @@
+## 크루즈 여행 예약 방법
+* https://www.youtube.com/watch?v=5Ock38nchqQ
+
 ## 크루즈 여행 가기 전 알았으면 좋았을 것들 (탐나는크루즈, 탐크루즈, 크루즈준비, 와이파이 인터넷 사용법)_권마담TV
 * https://www.youtube.com/watch?v=DJUm5hmRdxk
 크루즈 안내 : https://cafe.naver.com/bookuniversity...​
