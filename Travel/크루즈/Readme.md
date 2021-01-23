@@ -1,3 +1,7 @@
+## 크루즈 여행 비용 얼마면 되니?! 탈만한지 따져보자
+* https://www.youtube.com/watch?v=vAJ4_viuh5U
+
+
 ## 🚢하루 10만원에 떠나는 크루즈 여행 - 숙소부터 스테이크까지 다 공짜🧡
 * https://www.youtube.com/watch?v=hu6W5ykSy-c
 
