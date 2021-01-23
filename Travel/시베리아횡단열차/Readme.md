@@ -13,3 +13,6 @@
 # [유럽VLOG] 🇷🇺 4박 5일 시베리아 횡단열차 생존꿀팁!!! (모든 것을 포기한 그녀의 기.름.진 러시아 횡단열차 탑승기)
 * https://www.youtube.com/watch?v=-XlUdPy6ABw
 
+# 시베리아 횡단열차 2등칸, 시베리아 선발대가 알려주지 않는 모습들 [2019 Russia🇷🇺]
+* https://www.youtube.com/watch?v=omyjBYzN2jE
+
