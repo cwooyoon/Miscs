@@ -6,3 +6,7 @@
 중간 기착지 이르쿠츠크 바이칼 호수의 모습도 생생히 전달해 드립니다.
 횡단열차 예약하는 방법 자세한 설명 : https://youtu.be/xV7h0hDFdOY
 
+# 시베리아 횡단열차 예매 방법 및 여행 팁
+* https://www.youtube.com/watch?v=xV7h0hDFdOY
+* 티켓 예매 사이트 : https://pass.rzd.ru/main-pass/public/en
+
