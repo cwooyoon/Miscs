@@ -10,3 +10,6 @@
 * https://www.youtube.com/watch?v=xV7h0hDFdOY
 * 티켓 예매 사이트 : https://pass.rzd.ru/main-pass/public/en
 
+# [유럽VLOG] 🇷🇺 4박 5일 시베리아 횡단열차 생존꿀팁!!! (모든 것을 포기한 그녀의 기.름.진 러시아 횡단열차 탑승기)
+* https://www.youtube.com/watch?v=-XlUdPy6ABw
+
