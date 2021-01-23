@@ -1,5 +1,8 @@
 # App
 
+## 여러분이 사용하고 있지 않은 놀라운 단축기 15가지
+* https://www.youtube.com/watch?v=o-Kx_w21WqY
+
 ## 카톡 10년써도 모르는 기능 10가지
 * https://www.youtube.com/watch?v=SXt_bZzNrSE
 
