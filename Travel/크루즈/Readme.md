@@ -1,3 +1,7 @@
+## 크루즈 여행의 단점
+* https://www.youtube.com/watch?v=wtUxPHPZIzk
+
+
 ## 크루즈 여행 비용 얼마면 되니?! 탈만한지 따져보자
 * https://www.youtube.com/watch?v=vAJ4_viuh5U
 
