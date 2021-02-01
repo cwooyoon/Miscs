@@ -1,5 +1,8 @@
 # 운동
 
+## [이명] 이명, 난청의 자가치료법, 이명 있으신분들 꼭 보세요
+https://www.youtube.com/watch?v=LvCLG628J4s
+
 ## 어깨운동
 * https://www.donga.com/news/It/article/all/20210129/105183222/1?ref=main
 
