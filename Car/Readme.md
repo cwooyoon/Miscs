@@ -1,5 +1,10 @@
 # Car
 
+## X1
+### http://blog.naver.com/PostView.nhn?blogId=happycuy&logNo=222114663493&categoryNo=0&parentCategoryNo=0&viewDate=&currentPage=1&postListTopCurrentPage=1&from=postView
+* https://090501.tistory.com/888
+
+
 ## 자동차정비
 * 디젤 중고차 '엔진 상태' 90% 이상! 확인할 수 있습니다
   - https://www.youtube.com/watch?v=PJLpQySLWDo
