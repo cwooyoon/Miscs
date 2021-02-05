@@ -4,6 +4,9 @@
 ### http://blog.naver.com/PostView.nhn?blogId=happycuy&logNo=222114663493&categoryNo=0&parentCategoryNo=0&viewDate=&currentPage=1&postListTopCurrentPage=1&from=postView
 * https://090501.tistory.com/888
 
+## 신차구매요령, 100% 신차구매후 즉시 하면 정말 좋은 3가지(이거 이외에 솔직히 상술이다 인정?)+신차 인수 후 기본적으로 해야하는 3가지
+* https://www.youtube.com/watch?v=7CS85F0vxpo
+
 
 ## 자동차정비
 * 디젤 중고차 '엔진 상태' 90% 이상! 확인할 수 있습니다
