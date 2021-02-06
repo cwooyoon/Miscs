@@ -1,5 +1,9 @@
 # Car
 
+## "당장 계약해도 1년이상 기다려야한다고?" 4600만원에 살수 있는 역대급 SUV! 볼보 XC40 풀옵 시승기!
+* https://www.youtube.com/watch?v=4eYYOW0NO8w
+
+
 ## X1
 ### http://blog.naver.com/PostView.nhn?blogId=happycuy&logNo=222114663493&categoryNo=0&parentCategoryNo=0&viewDate=&currentPage=1&postListTopCurrentPage=1&from=postView
 * https://090501.tistory.com/888
