@@ -1,5 +1,9 @@
 # App
 
+## 컴퓨터에서 음성을 텍스트로 변환해주는 크롬 확장프로그램 활용법 PDF를 생성,수정, 편집하는 방법 어도비 아크로벳리더 메모장,워드패드,워드,엑셀등 PDF 사용법
+* https://www.youtube.com/watch?v=U58LMS-0sqg
+
+
 ## 여러분이 사용하고 있지 않은 놀라운 단축기 15가지
 * https://www.youtube.com/watch?v=o-Kx_w21WqY
 
