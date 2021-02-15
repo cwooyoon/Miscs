@@ -1,5 +1,10 @@
 # Health Information
 
+## 비만치료제 세마글루타이드
+* 부작용 없이 체중 20% 쏙...비만 치료제 ‘게임 체인저' 나왔다
+  - https://www.chosun.com/economy/science/2021/02/15/QQUVDJRQ5NBTXKEBJH2NYJR2XU/
+  
+  
 ## 단백뇨
 * 병원에서 해결해주지 않는 소변거품 완벽히 없애는 최고의 방법｜소변에거품이나는이유｜단백뇨 치료에 도움되는 좋은음식｜신장(콩팥) 좋아지는 확실한 방법｜단백뇨 알부민수치｜하늘건강법
   - https://www.youtube.com/watch?v=rlPTpv2NtZ4
